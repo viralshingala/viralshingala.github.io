@@ -1,2 +1,0 @@
-# viralshingala.io
-Personal space
